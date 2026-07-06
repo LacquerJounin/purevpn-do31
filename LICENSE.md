@@ -1,4 +1,4 @@
-
+updated PureVPN Extension | VPN-over-TOR + multi-device-support is the best PureVPN extension, featuring VPN-over-TOR and multi-device-support. Secure, fast, and optimized for
 
 
 
